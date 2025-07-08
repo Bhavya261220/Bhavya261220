@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Data Science & Machine Leaarning**
 
-- 📫 How to reach me **bhavyasreechoudary2000@gmail.com**
+- 📫 How to reach me **bhavyasrig3@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
